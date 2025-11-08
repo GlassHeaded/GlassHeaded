@@ -27,8 +27,8 @@ hi hello how are you.
   next about my childf aww hi ivy ivan
   so my child is non binary (i think i don't remember) and go by she/they, but they prefer to be called they/them by others that's not apart of our family
 ##
-  <img width="1110" height="170" alt="Image" src="https://github.com/user-attachments/assets/c3a1098e-e741-46a8-b0e1-cfdc00cc46d8" />
-  
+<div align="center">   
+｡ₓ ू ₒ ु  ·̩̩̥͙＊*•̩̩͙✩•̩̩͙*˚  ू ₒ ु ₓ｡
 
   about pt uujmm 
   always c+h me idm at all even if i have DNI on my name always c+h whenevr i don't care
@@ -39,9 +39,13 @@ hi hello how are you.
 
 based of everything up there now y'all know i have huge touch comfort and always yearn for touch (i also don't mind if u backshot my pony or kiss my pony tbh)
 
-<img width="1110" height="170" alt="Image" src="https://github.com/user-attachments/assets/aa34361d-ac99-4b73-9c62-06396361f5b9" />
+<div align="center">
+｡ₓ ू ₒ ु  ·̩̩̥͙＊*•̩̩͙✩•̩̩͙*˚ ू ₒ ु ₓ｡
 
 ##
+
+<div align="center">
+╔═*.·:·.✧ ✦ ✧.·:·.*═╗
 
 ![Image](https://github.com/user-attachments/assets/1de79368-052d-456c-8444-954c0960c41d)
 
@@ -64,6 +68,8 @@ i genuinely love how she criticize America here
 my fav song in this album is Purge the Poison, Man's world, New America, I Love You but I Love Me More, and Venus Fly Trap.
 
 this album is underated pls
+<div align="center">
+｡ₓ ू ₒ ु ✧༺♥༻∞ ू ₒ ु ₓ｡
 
 
 <!--
