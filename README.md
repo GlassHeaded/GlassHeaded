@@ -13,7 +13,7 @@ hi hello how are you.
   
   i kinda want to introduce myself a little further and also introduce my family ^_^
 
-  so about me, i born biologically female but i feel like i have no gender but have a little connection to genders but the connection is strong! Wich means im librafluid
+  so about me, i born biologically female but i feel like i have no gender wich means im agender but have a little connection to genders but the connection is strong! Wich means im librafluid
  
   i have beef with some1 ok.
 
