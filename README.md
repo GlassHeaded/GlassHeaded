@@ -9,7 +9,7 @@
 <div align="center">
 hi hello how are you.
 
-  based of the readme up there y'all know i go by Dawn Brandon Andrew or any nicknames yeah?
+  based of the readme up there y'all know i go by Dawn Brandon Andrew or any nicknames u came up with yeah?
   
   i kinda want to introduce myself a little further and also introduce my family ^_^
 
@@ -37,7 +37,7 @@ hi hello how are you.
 
   sit with me? hell yeah idm if ppl sit with me but always w2i if ur not my friends bc im [curse] awkward :((((
 
-based of everything up there now y'all know i have huge touch comfort and always yearn of touch (i also don't mind if u backshot my pony or kiss my pony tbh)
+based of everything up there now y'all know i have huge touch comfort and always yearn for touch (i also don't mind if u backshot my pony or kiss my pony tbh)
 
 <img width="1110" height="170" alt="Image" src="https://github.com/user-attachments/assets/aa34361d-ac99-4b73-9c62-06396361f5b9" />
 
