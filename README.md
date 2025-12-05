@@ -4,11 +4,23 @@
 
 ##
 
-hi i ii.. i.. ok
+hi i ii.. i.. 
+
 c+h whenever
+
 sit with me whenever
+
 backshot(?) my pony whenever
-kiss my pony whenever
-INT me whenever (iwCare tho)
+
+int whenever (iwcare ok?)
+
+and yeah
 
 but about bmf uhh.. maybe try to int with me a bunch of time (wont work if you genuinely force yourself on me) until im trust and comfortable enough with u👀👀
+
+
+i have a partner uhh a child yes  
+my partner GitHub is on my bio
+
+
+random stuff but i like Marina and the Diamonds👀👀 TFJ album is unskipable broo😭😂
