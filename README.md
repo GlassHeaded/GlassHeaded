@@ -27,4 +27,4 @@ random stuff but i like Marina and the Diamonds👀👀 TFJ album is unskipable 
 
 the rest is a wip ok??
 ok.. ok..
-ihave exam so i might not online a lot
+ihave exam so i might not be online like uhh 6-7 days yeahh.. wait SIXX SEEEVENN/ok imcringe asf brokill me
