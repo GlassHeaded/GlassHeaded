@@ -24,3 +24,5 @@ my partner GitHub is on my bio
 
 
 random stuff but i like Marina and the Diamonds👀👀 TFJ album is unskipable broo😭😂
+
+the rest is a wip ok??
