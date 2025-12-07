@@ -16,7 +16,7 @@ int whenever (iwcare ok?)
 
 and yeah
 
-but about bmf uhh.. maybe try to int with me a bunch of time (wont work if you genuinely force yourself on me) until im trust and comfortable enough with u👀👀
+but about bmf uhh.. maybe try to int with me a bunch of time (wont work if you genuinely force yourself on me) until i trust and comfortable enough being with u👀👀
 
 
 i have a partner uhh a child yes  
@@ -26,3 +26,5 @@ my partner GitHub is on my bio
 random stuff but i like Marina and the Diamonds👀👀 TFJ album is unskipable broo😭😂
 
 the rest is a wip ok??
+ok.. ok..
+ihave exam so i might not online a lot
