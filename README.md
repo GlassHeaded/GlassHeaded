@@ -25,6 +25,16 @@ my partner GitHub is on my bio
 
 random stuff but i like Marina and the Diamonds👀👀 TFJ album is unskipable broo😭😂
 
+##
+
+<img width="843" height="666" alt="Image" src="https://github.com/user-attachments/assets/5c4b6f82-f4e6-4f13-a9ea-12ce36643b7d" />
+
+boundaries thing
+
+do not use r4pe jokes on me iHATE IT BLEFEHRHRH.
+
+don't flirt with my partner PLEASLEL??? (this happen b4 and i don't want this anymore)/unless u did it jokingly !!!always ask for their premission!!!.
+
 the rest is a wip ok??
 ok.. ok..
 ihave exam so i might not be online like uhh 6-7 days yeahh.. wait SIXX SEEEVENN/ok imcringe asf brokill me
