@@ -18,8 +18,10 @@ and yeah
 
 but about bmf uhh.. maybe try to int with me a bunch of time (wont work if you genuinely force yourself on me) until i trust and comfortable enough being with u👀👀
 
+my online family is a huge freak guys be careful (beware they always make piss jokes ewww) ok
 
-i have a partner uhh a child yes  
+
+i have a partner and uhh a child yes  
 my partner GitHub is on my bio
 
 
@@ -37,4 +39,4 @@ don't flirt with my partner PLEASLEL??? (this happen b4 and i don't want this an
 
 the rest is a wip ok??
 ok.. ok..
-ihave exam so i might not be online like uhh 6-7 days yeahh.. wait SIXX SEEEVENN/ok imcringe asf brokill me
+i migjt like change my readme soon im js lazy to do shit
