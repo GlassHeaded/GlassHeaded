@@ -39,6 +39,9 @@ do not use r4pe jokes on me iHATE IT BLEFEHRHRH.
 
 don't flirt with my partner PLEASLEL??? (this happen b4 and i don't want this anymore)/unless u did it jokingly !!!always ask for their premission!!!.
 
-the rest is a wip ok??
-ok.. ok..
-i migjt like change my readme soon im js lazy to do shit
+##
+ more shit
+
+im a sean (Seildirectory) yumeshipper hii
+im pretty much sharing ok
+unless if you make weird shit about sean or flirting with random sean fiction kins or fictives pls go away, ur weird if u did
