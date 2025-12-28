@@ -45,3 +45,5 @@ don't flirt with my partner PLEASLEL??? (this happen b4 and i don't want this an
 im a sean (Seildirectory) yumeshipper hii
 im pretty much sharing ok
 unless if you make weird shit about sean or flirting with random sean fiction kins or fictives pls go away, ur weird if u did
+
+![Image](https://github.com/user-attachments/assets/6f92255c-7cf0-4ba7-931b-c878ab507757)
