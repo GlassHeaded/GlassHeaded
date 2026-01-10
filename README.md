@@ -7,27 +7,7 @@
 ##
 
 hi i ii.. i.. 
-
-c+h whenever
-
-sit with me whenever
-
-backshot(?) my pony whenever
-
-int whenever (iwcare ok?)
-
-and yeah
-
-but about bmf uhh.. maybe try to int with me a bunch of time (wont work if you genuinely force yourself on me) until i trust and comfortable enough being with u👀👀
-
-my online family is a huge freak guys be careful (beware they always make piss jokes ewww) ok
-
-
-i have a partner and uhh a child yes  
-my partner GitHub is on my bio
-
-
-random stuff but i like Marina and the Diamonds👀👀 TFJ album is unskipable broo😭😂
+under construction ok?? 
 
 ##
 
