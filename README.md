@@ -6,6 +6,7 @@
 
 ##
 
+<div align="center">
 hi i ii.. i.. 
 under construction ok?? 
 
@@ -13,6 +14,9 @@ under construction ok??
 
 <img width="843" height="666" alt="Image" src="https://github.com/user-attachments/assets/5c4b6f82-f4e6-4f13-a9ea-12ce36643b7d" />
 
+##
+
+<div align="center">
 boundaries thing
 
 do not use r4pe jokes on me iHATE IT BLEFEHRHRH.
@@ -20,6 +24,8 @@ do not use r4pe jokes on me iHATE IT BLEFEHRHRH.
 don't flirt with my partner PLEASLEL??? (this happen b4 and i don't want this anymore)/unless u did it jokingly !!!always ask for their premission!!!.
 
 ##
+
+ <div align="center">
  more shit
 
 im a sean (Seildirectory) yumeshipper hii
