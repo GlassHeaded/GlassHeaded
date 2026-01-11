@@ -8,12 +8,24 @@
 
 hi i ii.. i.. 
 under construction ok?? 
+<div align="center">
 <img width="50" height="50" alt="Image" src="https://github.com/user-attachments/assets/db34a7a6-1639-4952-a807-0a5b8fffed8a" /> 
+ <div align="center">
+  
 i AM agender (**IM AFAB**)
+  <div align="center">
 <img width="50" height="50" alt="Image" src="https://github.com/user-attachments/assets/a8273929-19a3-4d88-90ad-c42bfdb2d605" />
-im omni **BUT** i have femimine prefs
+<div align="center">
+ 
+im omni **BUT** i have feminime prefs
 
-REST IS WIP
+<div align="center">
+<img width="50" height="50" alt="Image" src="https://github.com/user-attachments/assets/05223038-fdd3-428d-90b2-5029dc38054d" />
+<div align="center">
+
+yes yes i love feminime people **including femboys** bc i *don't* fetishize them
+
+
 
 ##
 
