@@ -6,9 +6,10 @@
 
 ##
 <div align="center">
-◦•●◉✿ 𝙑𝙚𝙧𝙮 𝙋𝙚𝙖𝙠 𝙄𝙣𝙩𝙧𝙤 ✿◉●•◦
+; ◦•●◉✿ 𝙋𝙀𝘼𝙆 intro ✿◉●•◦ ;
 <div align="center">
- ᴜɴᴅᴇʀ ᴄᴏɴsᴛʀᴜᴄᴛɪᴏɴ
+ ‎ 
+ ‎ 
 
 <div align="left">
 ❥ :' 𝘿𝙖𝙬𝙣 ♫     
@@ -16,14 +17,10 @@
 ➤ ᥫ᭡ 𝘼𝙣𝙙𝙧𝙚𝙬 ଓ
 <div align="right">
  ⊱; ꒰ 𝘽𝙧𝙖𝙣𝙙𝙤𝙣
-
-
-
-
-
-
-
-
+‎<div align="center">
+‎ 
+‎ 
+‎ 
 <div align="center">
 ʚ <img width="50" height="50" alt="Image" src="https://github.com/user-attachments/assets/db34a7a6-1639-4952-a807-0a5b8fffed8a" /> ɞ
  
@@ -54,20 +51,3 @@ yes yes i love feminime people **including femboys** bc i *don't* fetishize them
 
 ##
 
-<div align="center">
-boundaries thing
-
-do not use r4pe jokes on me iHATE IT BLEFEHRHRH.
-
-don't flirt with my partner PLEASLEL??? (this happen b4 and i don't want this anymore)/unless u did it jokingly !!!always ask for their premission!!!.
-
-##
-
- <div align="center">
- more shit
-
-im a sean (Seildirectory) yumeshipper hii
-im pretty much sharing ok
-unless if you make weird shit about sean or flirting with random sean fiction kins or fictives pls go away, ur weird if u did
-
-![Image](https://github.com/user-attachments/assets/6f92255c-7cf0-4ba7-931b-c878ab507757)
